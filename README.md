@@ -22,7 +22,6 @@ Learning in public, 11+ contributions in the last year and counting!
 
 ### 📫 Connect With Me
 - GitHub: @fathimahasna-dev
-- LinkedIn: (un LinkedIn link inga add pannu da)
 
 ---
 ⭐️ *Thanks for visiting my profile!*
